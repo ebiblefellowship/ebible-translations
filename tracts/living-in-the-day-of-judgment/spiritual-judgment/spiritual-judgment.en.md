@@ -68,7 +68,7 @@ And of course we all know what happened.
 The sad tragic history of the world testifies to the fact that Adam and Eve disobeyed God. 
 They soon ate of the tree God had told them not to eat from.
 
-Genesis 3:3-6 But of the fruit of the tree which is in the midst of the garden, God hath said, Ye shall not eat of it, neither shall ye touch it, lest ye die. 
+> Genesis 3:3-6 But of the fruit of the tree which is in the midst of the garden, God hath said, Ye shall not eat of it, neither shall ye touch it, lest ye die. 
 And the serpent said unto the woman, Ye shall not surely die: 
 For God doth know that in the day ye eat thereof, then your eyes shall be opened, and ye shall be as gods, knowing good and evil. 
 And when the woman saw that the tree was good for food, and that it was pleasant to the eyes,
