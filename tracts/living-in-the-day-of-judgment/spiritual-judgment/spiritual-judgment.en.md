@@ -150,7 +150,7 @@ For as a snare shall it come on all them that dwell on the face of the whole ear
 On May 21, 2011, as the world rejoiced and exclaimed (the church along with them) ‘nothing happened’. 
 At that very time God ensnared all of the unsaved people of the earth (in and out of the churches) and began to give them the cup of His fury to drink.
 
-## 2ND SPIRITUAL JUDGMENT: CHRIST DRINKS FROM CUP OF GOD’S WRATH
+## SECOND SPIRITUAL JUDGMENT: CHRIST DRINKS FROM CUP OF GOD’S WRATH
 
 The Bible also reveals to us that Jesus Christ took upon Himself the sins of His people, and that God poured out His wrath upon Christ: punishing Him in their place. 
 The Lord Jesus entered into the human race in order to demonstrate and show forth His glorious atoning work. 
