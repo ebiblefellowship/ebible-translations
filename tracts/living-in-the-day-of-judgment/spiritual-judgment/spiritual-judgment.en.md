@@ -147,7 +147,7 @@ This is why the Bible also says the whole world will be snared at the time of th
 > Luke 21:34,35 And take heed to yourselves, lest at any time your hearts be overcharged with surfeiting, and drunkenness, and cares of this life, and so that day come upon you unawares. 
 For as a snare shall it come on all them that dwell on the face of the whole earth.
 
-On May 21, 2011, as the world rejoiced and exclaimed (the church along with them) ‘nothing happened’. 
+On May 21, 2011, as the world rejoiced and exclaimed (the church along with them) “nothing happened.” 
 At that very time God ensnared all of the unsaved people of the earth (in and out of the churches) and began to give them the cup of His fury to drink.
 
 ## SECOND SPIRITUAL JUDGMENT: CHRIST DRINKS FROM CUP OF GOD’S WRATH
