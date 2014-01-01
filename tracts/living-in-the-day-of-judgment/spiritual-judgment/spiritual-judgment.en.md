@@ -140,7 +140,7 @@ Perhaps you can envision literal fire and brimstone falling down upon unsaved ma
 That’s traps. 
 Does anyone really believe that traps or cages are going to fall down from the sky all over the earth? 
 Of course not! 
-God added this word ‘snares’ in order to assist us in understanding that the cup of wrath given to all the unsaved people of the world will be a spiritual cup. 
+God added this word “snares” in order to assist us in understanding that the cup of wrath given to all the unsaved people of the world will be a spiritual cup. 
 It’s not literal, but spiritual judgment. 
 This is why the Bible also says the whole world will be snared at the time of the end:
 
