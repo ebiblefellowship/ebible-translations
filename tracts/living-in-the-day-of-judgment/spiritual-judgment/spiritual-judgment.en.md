@@ -246,7 +246,7 @@ Terribly, the following Scripture is now being fulfilled:
 Of course this terrible truth leaves us with many questions concerning the character of this present period of judgment.
 
 And also we wonder how it is that God’s elect people are still living and remaining upon the earth during this time. 
-We will seek to answer these questions and many more in the next installment of our tract series “Living in the Day of Judgment”.
+We will seek to answer these questions and many more in the next installment of our tract series Living in the Day of Judgment.
 
 <address markdown="1">
 
