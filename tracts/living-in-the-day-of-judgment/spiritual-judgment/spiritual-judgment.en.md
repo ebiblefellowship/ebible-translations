@@ -257,11 +257,11 @@ www.ebible2.com
 
 Visit our Facebook page:
 
-www.facebook/ebiblefellowship
+www.facebook.com/ebiblefellowship
 
 Also visit our YouTube Channel
 
-E Bible Fellowship YouTube
+www.youtube.com/ebiblefellowship1
 
 You may send a message, question or comment to:
 
