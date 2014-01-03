@@ -234,10 +234,10 @@ In fact, the Biblical evidence is so strong that we really need to ask ourselves
 how could it be that we had never previously considered a spiritual judgment as even a possibility for the final judgment? 
 We should note however, that the Bible does teach us that God will physically and very literally destroy this world on the last day of earth’s existence. 
 We wholeheartedly agree with this sound Biblical teaching. 
-But the Bible is also teaching that May 21, 2011, began a period of time known as ‘Judgment Day’ in a spiritual way. 
+But the Bible is also teaching that May 21, 2011, began a period of time known as Judgment Day in a spiritual way.
 
 This spiritual judgment will continue for a set number of days and then finally, on the very last day of this period of time God’s wrath will physically manifest itself and utterly destroy this entire creation with every unsaved person along with it. 
-The Bible reveals that every living person alive today has entered into the period of time the Bible identifies as ‘Judgment Day’. 
+The Bible reveals that every living person alive today has entered into the period of time the Bible identifies as Judgment Day. 
 At this time we are all living in the Day of Judgment. 
 Terribly, the following Scripture is now being fulfilled:
 
